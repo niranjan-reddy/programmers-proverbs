@@ -338,3 +338,41 @@ Please tweet <@antjanus> if you do use it so I can see it in action!
 ***
 
 #### Commiting is the only command I know, Commiting on you.
+
+
+<h2>Adding a few Management Quotes from "Who Moved My Cheese?"</h2>
+
+
+Change Happens
+
+    They Keep Moving The Cheese
+
+
+Anticipate Change
+
+    Get Ready For The Cheese To Move
+
+
+Monitor Change
+
+    Smell The Cheese Often So You Know When It Is Getting Old
+
+
+Adapt To Change Quickly
+
+    The Quicker You Let Go Of Old Cheese, The Sooner You Can Enjoy New Cheese
+
+
+Change
+
+    Move With The Cheese
+
+
+Enjoy Change!
+
+    Savor The Adventure And Enjoy The Taste Of New Cheese!
+
+
+Be Ready To Change Quickly And Enjoy It Again
+
+    They Keep Moving The Cheese.
